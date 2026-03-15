@@ -1,1 +1,0 @@
-# khi-sticker-bot
